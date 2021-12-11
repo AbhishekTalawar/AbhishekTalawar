@@ -5,7 +5,7 @@
 - 📫 linkedin.com/in/abhishek-talawar-7385394a
 
 
--  Education
+-  Educational Details
 -  MBA (Marketing specialization)- Visvesvaraya Technological University, Belagavi (2018 - 2020)
 -  B.Sc (Physics)- Raja Lakhamagouda Science Institute, Belagavi (2013 - 2016)
 
